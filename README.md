@@ -1,0 +1,2 @@
+# belajar
+Apa jdi nya 
